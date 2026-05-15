@@ -1,4 +1,4 @@
-
+Enhance your Astrill VPN experience with smart Astrill VPN Addon | VPN-over-TOR + tracker-blocker, the #1 addon. Includes VPN-over-TOR and tracker-blocker for a safer and more
 
 
 
